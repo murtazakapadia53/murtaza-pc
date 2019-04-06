@@ -1,0 +1,2 @@
+# murtaza-pc
+buvj hard
